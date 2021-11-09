@@ -1,6 +1,6 @@
 Hi there 👋
 
-🔭 I'm IT Talent Acquisition at Evolution. 
+🔭 I'm IT Talent Acquisition. 
 
 📫 How to reach me: Telegram - @yulktag, Linkedin - yuliya-shchuka
 <!--
