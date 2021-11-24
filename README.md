@@ -1,6 +1,6 @@
 Hi there 👋
 
-🔭 I'm IT Talent Acquisition. 
+🔭 I'm IT Recruiter at Printify. 
 
 📫 How to reach me: Telegram - @yulktag, Linkedin - yuliya-shchuka
 <!--
